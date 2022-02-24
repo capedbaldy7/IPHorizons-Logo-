@@ -2,7 +2,7 @@
 
 ### Hi there 👋
 
-#### I am Rohit Singh.
+### I am Rohit Singh.
 
 🙂 These are my submissions for IPHorizons Logo Contest.
 
